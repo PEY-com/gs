@@ -1,0 +1,1 @@
+Este sitio está diseñado para dar a conocer proyectos personales, cuentos, traducciones, ensayos, recomendaciones de libros que he leído, traducido o editado. Puede navegarse por el sitio haciendo click con el mouse sobre las figuras. Algunas de ellas conducirán a otras páginas, otras son meramente ilustrativas.
